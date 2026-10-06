@@ -1,0 +1,2 @@
+# premium-ikebana-arr-001-ikebana-arrangement-kenzan-c
+Struggling to preserve the ephemeral beauty of your ikebana arrangements and manage the upkeep of your kenzan? This Notion workshop template turns fleeting moments into a structured art practice.  No more scattered notes or forgotten maintenance schedules. The Ikebana Arrangement &amp; Kenzan Craft Workshop provides a dedicated digital studio to log ev
